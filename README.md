@@ -1,5 +1,5 @@
 # 💫 About Me:
-🍀 Born and raised in Amsterdam<br>📖 Studying at the Vrije Universiteit Amsterdam<br>🤓 Second-year AI student<br>💻 Currently learning Machine Learning
+🍀 Born and raised in Amsterdam<br>📖 Studying at the Vrije Universiteit Amsterdam<br>🤓 Second-year AI student<br
 
 
 ## 🌐 Socials:
